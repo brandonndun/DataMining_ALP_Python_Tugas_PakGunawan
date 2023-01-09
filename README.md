@@ -1,0 +1,1 @@
+# DataMining_ALP_Python_Tugas_PakGunawan
